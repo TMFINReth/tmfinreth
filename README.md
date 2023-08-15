@@ -1,2 +1,3 @@
-# tmfinreth
-That MFer Is Not Real!!
+# TMFINR - That MFer Is Not Real!
+
+This meme coin is about to pop..
